@@ -1,1 +1,1 @@
-Informaiton on data laws in or applying to Australia
+Information on data laws within, or that apply to, Australia
